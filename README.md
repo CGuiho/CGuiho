@@ -1,7 +1,9 @@
 €> 🔥 **Electronic and Computer Engineer**
 
-€> 🌐 **Intelligent40**
+€> ⚡ **GUIHO**
 
-€> 🤖 **Brilliant40**
+€> 🌐 **GUIHO Intelligent40**
+
+€> 🤖 **GUIHO Brilliant40**
 
 #Back0ff
