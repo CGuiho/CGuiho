@@ -1,9 +1,3 @@
-€> 🔥 **Electronic and Computer Engineer**
+€> 🔥 ** Building somithing awesome.**
 
 €> ⚡ **GUIHO**
-
-€> 🌐 **GUIHO Intelligent40**
-
-€> 🤖 **GUIHO Brilliant40**
-
-#Back0ff
