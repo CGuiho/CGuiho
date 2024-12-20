@@ -1,3 +1,3 @@
-€> 🔥 ** Building somithing awesome.**
+€> 🔥 **Building somithing awesome.**
 
 €> ⚡ **GUIHO**
